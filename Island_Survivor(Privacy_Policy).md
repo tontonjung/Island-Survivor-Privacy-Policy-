@@ -1,4 +1,4 @@
-# Island-Survivor-Privacy-Policy & Terms of Service-
+# Island_Survivor-Privacy_Policy_&_Terms_of_Service-
 
 Privacy Policy
 1. Data Collection
